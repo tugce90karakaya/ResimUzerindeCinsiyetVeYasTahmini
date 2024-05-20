@@ -1,0 +1,2 @@
+# ResimUzerindeGoruntuVeYasTahmini
+ ResimUzerindeGoruntuVeYasTahmini
